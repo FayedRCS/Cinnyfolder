@@ -1,2 +1,3 @@
 # Cinnyfolder
 Folder of my cat...
+Need to store some very special pictures of my cat Cinny here. I'll show them to her later, promise. 
